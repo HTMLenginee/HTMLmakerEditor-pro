@@ -1,2 +1,2 @@
 # HTMLmakerEditor-pro
-None cap :)))
+no cap :)
